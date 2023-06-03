@@ -6,4 +6,4 @@
 
 Check out my new database:
 
-https://crackerfree-database.blogspot.com
+[https://crackerfree-database.blogspot.com](https://crackerfree-official-database.blogspot.com/)
